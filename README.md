@@ -11,4 +11,6 @@ Ed was the first Chief Technology Officer in the 200-year-old history of Ordnanc
 
 He earned a Masters degree in Applied Remote Sensing from Cranfield Institute of Technology, holds a Honorary Doctorate in Science from Kingston University, London.  and is a fellow of the Royal Geographical Society, an Associate Fellow of the Royal Institute of Navigation and a professional member of the British Computer Society.
 
+He is a lapsed aviator having learnt to fly before succumbing to the english weather and the price of avgas,  he now just takes photographs of aircraft, examples of which can be found at photos.edparsons.com.
+
 Ed is married with two children and lives in South West London.
